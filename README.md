@@ -239,12 +239,7 @@ These experiences reinforce the values I bring to professional leadership: integ
 **GitHub:** [github.com/bkmuvvala](https://github.com/bkmuvvala)
 
 I welcome professional conversations involving executive leadership, healthcare operations, enterprise transformation, technology-enabled business improvement, and strategic advisory opportunities.
-  
 
-
-
-
-I welcome professional conversations involving executive leadership, healthcare operations, enterprise transformation, technology-enabled business improvement, and strategic advisory opportunities.
 
 ---
 
