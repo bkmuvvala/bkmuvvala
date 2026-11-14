@@ -225,12 +225,17 @@ These experiences reinforce the values I bring to professional leadership: integ
 **Location:** Franklin, Tennessee, United States
 
 **Website:** [BK Executive Advisory](https://bkexecutiveadvisory.com)
+**Serene Care:** [Healthcare & Home Care Services](https://serenecare.us/)
 
 **LinkedIn:** [Bhavani Kumar Muvvala](https://www.linkedin.com/in/bhavani)
+**Huntington Learning Center:** [Hendersonville, Tennessee — Center #323](https://huntingtonhelps.com/locations/hendersonville-tn/)
 
+
+**X (Twitter):** [@BKMuvvala](https://x.com/BKMuvvala)
 **Email:** [mbhavanikumar@gmail.com](mailto:mbhavanikumar@gmail.com)
 
 **GitHub:** [github.com/bkmuvvala](https://github.com/bkmuvvala)
+
 
 I welcome professional conversations involving executive leadership, healthcare operations, enterprise transformation, technology-enabled business improvement, and strategic advisory opportunities.
 
